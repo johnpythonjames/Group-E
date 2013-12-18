@@ -14,3 +14,4 @@ member:
   Good Luck And Good Bless Group Mates ^_^
   :)
 
+hi mike so whats first step?
